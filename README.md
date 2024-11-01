@@ -1,1 +1,1 @@
-# class6_pr1
+https://klause-9999.github.io/class6_pr1/
